@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @AdemDalkilic
+- contact me via email: adem@adamsfanclub.com
