@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @AdemDalkilic
-- contact me via email: adem@adamsfanclub.com
+- contact me via email: dalkilic2003@gmail.com
